@@ -1,3 +1,5 @@
+${\textsf{\color{#996515} Previously known as GitHub user D4rktheJohtonian. }}$
+
 <p align="center">
 <img src="https://github.com/user-attachments/assets/43026d4e-1240-4bd3-aca7-de5479770d52" width=230>
 <img src="https://github.com/user-attachments/assets/e77c659e-6a0c-47ca-8378-614f4dc8ba4f" width=220> 
