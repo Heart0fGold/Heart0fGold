@@ -1,4 +1,8 @@
+<p align="center">
 ${\textsf{\color{#996515} Previously known as GitHub user D4rktheJohtonian. }}$
+
+<p align="center">
+  ${\textsf{\color{#996515} I need to re-edit, but not now. }}$
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/43026d4e-1240-4bd3-aca7-de5479770d52" width=230>
