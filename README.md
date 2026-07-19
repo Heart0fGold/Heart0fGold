@@ -5,7 +5,7 @@
 
 <div align="center">
    
- [![Typing SVG](https://readme-typing-svg.demolab.com?font=Bangers&size=35&letterSpacing=double+space&duration=2000&pause=500&color=FFCC33&center=true&vCenter=true&width=650&height=52&lines="I'm+lonesome+since+I+crossed+the+hill;and+o'er+the+moor+and+valley.;Such+grievous+thoughts+my+heart+to+fill;since+parting+with+my+Sally.;I+seek+no+more+the+fine+or+gay%2C;for+each+does+but+remind+me.;How+swift+the+hours+did+pass+away;with+the+Girl+I+Left+Behind+Me.")](https://git.io/typing-svg)
+ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Special+Elite&size=32&letterSpacing=double+space&duration=2000&pause=500&color=FFCC33&center=true&vCenter=true&width=650&height=52&lines="I'm+lonesome+since+I+crossed+the+hill;and+o'er+the+moor+and+valley.;Such+grievous+thoughts+my+heart+to+fill;since+parting+with+my+Sally.;I+seek+no+more+the+fine+or+gay%2C;for+each+does+but+remind+me.;How+swift+the+hours+did+pass+away;with+the+Girl+I+Left+Behind+Me.")](https://git.io/typing-svg)
 </div>
 
 
@@ -24,6 +24,14 @@ src="https://files.catbox.moe/db2n2u.png">
 
 
 <img align="left" width="350" src="https://files.catbox.moe/oz4v4v.png">
+
+
+
+
+<div align="center">
+   
+ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Special+Elite&size=32&letterSpacing=double+space&duration=2000&pause=500&color=FFCC33&center=true&vCenter=true&width=650&height=52&lines="Oh2%C+ne'er+shall+I+forget+the+night2%C;the+stars+was+bright+above+me;")](https://git.io/typing-svg)
+</div>
 
 
 
