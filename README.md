@@ -3,8 +3,10 @@
 
 
 
-<p align="center">
-<img src="https://files.catbox.moe/en49ql.png" width=10000>
+<div align="center">
+   
+ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Bangers&size=35&letterSpacing=double+space&duration=2000&pause=500&color=FFCC33&center=true&vCenter=true&width=650&height=52&lines="I'm+lonesome+since+I+crossed+the+hill;and+o'er+the+moor+and+valley.;Such+grievous+thoughts+my+heart+to+fill;since+parting+with+my+Sally.;I+seek+no+more+the+fine+or+gay%2C;for+each+does+but+remind+me.;How+swift+the+hours+did+pass+away;with+the+Girl+I+Left+Behind+Me.")](https://git.io/typing-svg)
+</div>
 
 
   
@@ -14,13 +16,14 @@
 <img src="https://files.catbox.moe/5orwm1.png" width=500>
 
 
+<img align="right" width="350" 
+src="https://files.catbox.moe/db2n2u.png">
 
-<p align="right">
-<img src="https://files.catbox.moe/db2n2u.png" width=350>
 
 
-<p align="left">
-<img src="https://files.catbox.moe/oz4v4v.png" width=350>
+
+
+<img align="left" width="350" src="https://files.catbox.moe/oz4v4v.png">
 
 
 
