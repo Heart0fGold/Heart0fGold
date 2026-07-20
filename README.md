@@ -16,13 +16,38 @@
 <img src="https://files.catbox.moe/53uxo5.png" width=500>
 
 
+
 <img align="right" width="350" 
 src="https://files.catbox.moe/db2n2u.png">
 
 
 
-<img align="left" width="350" src="https://files.catbox.moe/oz4v4v.png">
 
+
+
+
+
+
+# 
+
+
+<img align="left" width="350"
+src="https://files.catbox.moe/oz4v4v.png">
+
+
+Ethan ⋮ Karl ⋮ Aurum ⋮ Slingshot
+
+
+Heﾉhim ⋮ Sheﾉher
+
+
+Not online too often now because of school and limited access to my laptop.
+
+
+Always around the Roblox and TMC area. Occasionally on the right side of Bakery (the GNB area) or near spawn (not recommended to approach me or interact if I'm near spawn. But C+H is still encouraged).
+
+
+#
 
 
 <img src="https://files.catbox.moe/s23a7s.png" width=900>
