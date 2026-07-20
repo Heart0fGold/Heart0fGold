@@ -13,7 +13,7 @@
 <p align="center">
 <img src="https://files.catbox.moe/75b39v.png" width=900>
 
-<img src="https://files.catbox.moe/5orwm1.png" width=500>
+<img src="https://files.catbox.moe/53uxo5.png" width=500>
 
 
 <img align="right" width="350" 
@@ -21,21 +21,18 @@ src="https://files.catbox.moe/db2n2u.png">
 
 
 
-
-
 <img align="left" width="350" src="https://files.catbox.moe/oz4v4v.png">
 
+
+
+<img src="https://files.catbox.moe/s23a7s.png" width=900>
 
 
 
 <div align="center">
    
- [![Typing SVG](https://readme-typing-svg.demolab.com?font=Special+Elite&size=32&letterSpacing=double+space&duration=2000&pause=500&color=FFCC33&center=true&vCenter=true&width=650&height=52&lines="Oh2%C+ne'er+shall+I+forget+the+night2%C;the+stars+was+bright+above+me;")](https://git.io/typing-svg)
+ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Special+Elite&size=32&letterSpacing=double+space&duration=2000&pause=500&color=FFCC33&center=true&vCenter=true&width=650&height=52&lines="Oh%2C+ne'er+shall+I+forget+the+night%2C;the+stars+was+bright+above+me;and+gently+lent+their+silverly+lights;when+she+first+vowed+to+love+me.;But+now+I'm+bound+to+Brighton+camp,;kind+heaven,+then,+pray+guide+me.;And+send+me+safely+back+again,;to+The+Girl+I+Left+Behind+Me.")](https://git.io/typing-svg)
 </div>
-
-
-
-<img src="https://files.catbox.moe/s23a7s.png" width=900>
 
 
 <p align="center">
