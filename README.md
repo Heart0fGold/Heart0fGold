@@ -17,8 +17,6 @@
 
 
 
-<img align="right" width="350" 
-src="https://files.catbox.moe/db2n2u.png">
 
 
 
@@ -31,7 +29,7 @@ src="https://files.catbox.moe/db2n2u.png">
 # 
 
 
-<img align="left" width="350"
+<img align="center" width="350"
 src="https://files.catbox.moe/oz4v4v.png">
 
 
@@ -48,6 +46,14 @@ Always around the Roblox and TMC area. Occasionally on the right side of Bakery 
 
 
 #
+
+
+
+
+<img align="center" width="350" 
+src="https://files.catbox.moe/db2n2u.png">
+
+
 
 
 <img src="https://files.catbox.moe/s23a7s.png" width=900>
