@@ -42,10 +42,14 @@ Heﾉhim ⋮ Sheﾉher
 Not online too often now because of school and limited access to my laptop.
 
 
-**Whispet to interact always**, because I didn't really pay attention to public chat unless one is talking right infront of me. **C+H freely and always encouraged**, even when I put dni in my name. *Do not copy my ponies* unless I give you permission.
+**Whispet to interact always**, because I didn't really pay attention to public chat unless one is talking right infront of me. **C+H freely and always encouraged**, even when I put dni in my name or when I'm with friends. *Do not copy my ponies* unless I give you the permission to. *Interact freely!* I want someone to talk to, and we can be friends if ou want.
 
 
 Always around the Roblox and TMC area. Occasionally on the right side of Bakery (the GNB area) or near spawn (not recommended to approach me or interact if I'm near spawn. But C+H is still encouraged).
+
+
+Usually is seen together with Danny ([@GHOSTBUSTERS-SFX](https://github.com/GHOSTBUSTERS-SFX)) or Ferry ([@SomeoneForReal](https:/github.com/SomeoneForReal)).
+
 
 
 #
