@@ -48,7 +48,7 @@ Not online too often now because of school and limited access to my laptop.
 Always around the Roblox and TMC area. Occasionally on the right side of Bakery (the GNB area) or near spawn (not recommended to approach me or interact if I'm near spawn. But C+H is still encouraged).
 
 
-Usually is seen together with Danny ([@GHOSTBUSTERS-SFX](https://github.com/GHOSTBUSTERS-SFX)) or Ferry ([@SomeoneForReal](https:/github.com/SomeoneForReal)).
+Usually is seen together with Danny ([@GHOSTBUSTERS-SFX](https://github.com/GHOSTBUSTERS-SFX)) or Ferry ([@SomeoneForReal](https://github.com/SomeoneForReal)).
 
 
 
