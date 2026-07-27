@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://files.catbox.moe/qn5lzi.png" width=900>
+<img src="https://files.catbox.moe/qn5lzi.png" width=850>
 
 
 
@@ -11,7 +11,7 @@
 
   
 <p align="center">
-<img src="https://files.catbox.moe/75b39v.png" width=900>
+<img src="https://files.catbox.moe/75b39v.png" width=850>
 
 <img src="https://files.catbox.moe/53uxo5.png" width=500>
 
@@ -29,11 +29,8 @@
 # 
 
 
-<img align="center" width="350"
-src="https://files.catbox.moe/oz4v4v.png">
-
-
-Ethan ⋮ Karl ⋮ Aurum ⋮ Slingshot
+<img align="left" width="330"
+src="https://files.catbox.moe/oz4v4v.png"> _**Ethan**_ ⋮ **Karl** ⋮ Aurum ⋮ Slingshot
 
 
 Heﾉhim ⋮ Sheﾉher
@@ -57,13 +54,13 @@ Usually is seen together with Danny ([@GHOSTBUSTERS-SFX](https://github.com/GHOS
 
 
 
-<img align="center" width="350" 
+<img align="right" width="350" 
 src="https://files.catbox.moe/db2n2u.png">
 
 
 
 
-<img src="https://files.catbox.moe/s23a7s.png" width=900>
+<img src="https://files.catbox.moe/s23a7s.png" width=850>
 
 
 
@@ -74,7 +71,7 @@ src="https://files.catbox.moe/db2n2u.png">
 
 
 <p align="center">
-<img src="https://files.catbox.moe/gj1fes.png" width=900>
+<img src="https://files.catbox.moe/gj1fes.png" width=850>
 
 
 ${\textsf{\color{#FFCC30} All images and art are from Pinterest. }}$
