@@ -29,15 +29,16 @@
 # 
 
 
-<img align="left" width="340"
-src="https://files.catbox.moe/oz4v4v.png"> $${\color{#F9E7C0}Ethan}$$ ⋮ $${\color{#F7CA84}Karl}$$ ⋮ $${\color{#EAB749}Aurum}$$
+<img align="left" width="330"
+src="https://files.catbox.moe/oz4v4v.png"> 
+${\textsf{\color{#F9E7C0}Ethan}}$ ⋮ ${\textsf{\color{#F7CA84}Karl}}$ ⋮ ${\textsf{\color{#EAB749}Aurum}}$ ⋮ ${\textsf{\color{#B47A21}Slingshot}}$ 
 
 
 
-$${\color{#F2F5E2}Heﾉhim}$$ ⋮ Sheﾉher
+${\textsf{\color{#F2F5E2}Heﾉhim}}$ ⋮ ${\textsf{\color{#E3DEA4}Sheﾉher}}$
 
 
-Seasian ⋮ IDN ﾉ ENG ﾉ (a little of) DEU
+${\textsf{\color{#F2F5E2}Seasian}}$ ⋮ ${\textsf{\color{#E3DEA4}IDN}}$ ﾉ ${\textsf{\color{#D4954D}ENG}}$ ﾉ ${\textsf{\color{#775533}(a little of) DEU}}$
 
 
 Not online too often now because of school and limited access to my laptop.
