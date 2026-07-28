@@ -30,11 +30,11 @@
 
 
 <img align="left" width="340"
-src="https://files.catbox.moe/oz4v4v.png"> $${\color{#F9E7C0}Ethan}$$ ⋮ $${\color{#F7CA84}Karl}$$ ⋮ $${\color{#EAB749}Aurum}$$ ⋮ $${\color{#B47A21}Slingshot}$$
+src="https://files.catbox.moe/oz4v4v.png"> $${\color{#F9E7C0}Ethan}$$ ⋮ $${\color{#F7CA84}Karl}$$ ⋮ $${\color{#EAB749}Aurum}$$
 
 
 
-Heﾉhim ⋮ Sheﾉher
+$${\color{#F2F5E2}Heﾉhim}$$ ⋮ Sheﾉher
 
 
 Seasian ⋮ IDN ﾉ ENG ﾉ (a little of) DEU
