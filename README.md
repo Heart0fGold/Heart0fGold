@@ -68,6 +68,11 @@ Always around the Roblox and TMC area. Occasionally on the right side of Bakery 
 Usually is seen together with Danny ([@GHOSTBUSTERS-SFX](https://github.com/GHOSTBUSTERS-SFX)) or Ferry ([@SomeoneForReal](https://github.com/SomeoneForReal)).
 
 
+#
+
+
+<img align="center" width="200"
+src="https://files.catbox.moe/8xx1c9.png">
 
 
 <img src="https://files.catbox.moe/s23a7s.png" width=850>
