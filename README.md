@@ -29,33 +29,40 @@
 # 
 
 
-<img align="left" width="330"
-src="https://files.catbox.moe/oz4v4v.png"> _**Ethan**_ ⋮ **Karl** ⋮ Aurum ⋮ Slingshot
+<img align="left" width="340"
+src="https://files.catbox.moe/oz4v4v.png"> $${\color{#F9E7C0}Ethan}$$ ⋮ $${\color{#F7CA84}Karl}$$ ⋮ $${\color{#EAB749}Aurum}$$ ⋮ $${\color{#B47A21}Slingshot}$$
+
 
 
 Heﾉhim ⋮ Sheﾉher
 
 
+Seasian ⋮ IDN ﾉ ENG ﾉ (a little of) DEU
+
+
 Not online too often now because of school and limited access to my laptop.
 
 
-**Whispet to interact always**, because I didn't really pay attention to public chat unless one is talking right infront of me. **C+H freely and always encouraged**, even when I put dni in my name or when I'm with friends. *Do not copy my ponies* unless I give you the permission to. *Interact freely!* I want someone to talk to, and we can be friends if ou want.
+I don't usually talk first, unless I'm really excited to chat with you, but I do not talk much in a group conversation. I'm insensitive and lack empathy, although I will try my best to comfort you if you vent to me. I get distant sometimes, don't worry though, I just get like that whenever I'm bored or want to be alone. I have little to no filter, so expect me to insult you jokingly at times. I don't usually use tonetags. I also have a weird humour (you know, like.. Nazi and stuff), but I DO NOT tolerate jokes like sa, suicide, etc. 
 
 
-Always around the Roblox and TMC area. Occasionally on the right side of Bakery (the GNB area) or near spawn (not recommended to approach me or interact if I'm near spawn. But C+H is still encouraged).
 
-
-Usually is seen together with Danny ([@GHOSTBUSTERS-SFX](https://github.com/GHOSTBUSTERS-SFX)) or Ferry ([@SomeoneForReal](https://github.com/SomeoneForReal)).
 
 
 
 #
 
 
-
+## **_PONYTOWN_**
 
 <img align="right" width="350" 
-src="https://files.catbox.moe/db2n2u.png">
+src="https://files.catbox.moe/db2n2u.png"> **Whispet to interact always**, because I didn't really pay attention to public chat unless one is talking right infront of me. **C+H freely and always encouraged**, even when I put dni in my name or when I'm with friends. *Do not copy my ponies* unless I give you the permission to. *Interact freely!* I want someone to talk to, though I won't accept sudden friend request if we even barely talk.
+
+
+Always around the Roblox and TMC area. Occasionally on the right side of Bakery (the GNB area) or near spawn (not recommended to approach me or interact if I'm near spawn. But C+H is still encouraged).
+
+
+Usually is seen together with Danny ([@GHOSTBUSTERS-SFX](https://github.com/GHOSTBUSTERS-SFX)) or Ferry ([@SomeoneForReal](https://github.com/SomeoneForReal)).
 
 
 
