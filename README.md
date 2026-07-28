@@ -29,7 +29,7 @@
 # 
 
 
-<img align="left" width="330"
+<img align="left" width="370"
 src="https://files.catbox.moe/oz4v4v.png"> 
 ${\textsf{\color{#F9E7C0}Ethan}}$ ⋮ ${\textsf{\color{#F7CA84}Karl}}$ ⋮ ${\textsf{\color{#EAB749}Aurum}}$ ⋮ ${\textsf{\color{#B47A21}Slingshot}}$ 
 
@@ -44,8 +44,10 @@ ${\textsf{\color{#F2F5E2}Seasian}}$ ⋮ ${\textsf{\color{#E3DEA4}IDN}}$ ﾉ ${\t
 Not online too often now because of school and limited access to my laptop.
 
 
-I don't usually talk first, unless I'm really excited to chat with you, but I do not talk much in a group conversation. I'm insensitive and lack empathy, although I will try my best to comfort you if you vent to me. I get distant sometimes, don't worry though, I just get like that whenever I'm bored or want to be alone. I have little to no filter, so expect me to insult you jokingly at times. I don't usually use tonetags. I also have a weird humour (you know, like.. Nazi and stuff), but I DO NOT tolerate jokes like sa, suicide, etc. 
+I don't usually talk first, unless I'm really excited to chat with you, but I do not talk much in a group conversation. I'm insensitive and lack empathy. I get distant sometimes, don't worry though, I just get like that whenever I'm bored or want to be alone. I have little to no filter, so expect me to insult you jokingly at times. I don't usually use tonetags. I also have a weird humour (you know, like.. Nazi and stuff), but I DO NOT tolerate jokes like sa, suicide, etc. 
 
+
+_**DNI**_ : Basic dni criteria, -12 and 21+, problematic media, French NPC x other nation that's not an ally to France (Bloodybarrel, Hottea, Teabiscuit, etc.) **are DNIUF**, unless you don't talk about it in front of me. Generally don't be an asshole.
 
 
 
@@ -56,7 +58,7 @@ I don't usually talk first, unless I'm really excited to chat with you, but I do
 
 ## **_PONYTOWN_**
 
-<img align="right" width="350" 
+<img align="right" width="400" 
 src="https://files.catbox.moe/db2n2u.png"> **Whispet to interact always**, because I didn't really pay attention to public chat unless one is talking right infront of me. **C+H freely and always encouraged**, even when I put dni in my name or when I'm with friends. *Do not copy my ponies* unless I give you the permission to. *Interact freely!* I want someone to talk to, though I won't accept sudden friend request if we even barely talk.
 
 
