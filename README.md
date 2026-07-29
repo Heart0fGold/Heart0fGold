@@ -41,7 +41,6 @@ ${\textsf{\color{#F2F5E2}Heﾉhim}}$ ⋮ ${\textsf{\color{#E3DEA4}Sheﾉher}}$
 ${\textsf{\color{#F2F5E2}Seasian}}$ ⋮ ${\textsf{\color{#E3DEA4}IDN}}$ ﾉ ${\textsf{\color{#D4954D}ENG}}$ ﾉ ${\textsf{\color{#775533}(a little of) DEU}}$
 
 
-Not online too often now because of school and limited access to my laptop.
 
 
 I don't usually talk first, unless I'm really excited to chat with you, but I do not talk much in a group conversation. I'm insensitive and lack empathy. I get distant sometimes, don't worry though, I just get like that whenever I'm bored or want to be alone. I have little to no filter, so expect me to insult you jokingly at times. I don't usually use tonetags. I also have a weird humour (you know, like.. Nazi and stuff), but I DO NOT tolerate jokes like sa, suicide, etc. 
@@ -59,7 +58,10 @@ _**DNI**_ : Basic dni criteria, -12 and 21+, problematic media, French NPC x oth
 ## **_PONYTOWN_**
 
 <img align="right" width="400" 
-src="https://files.catbox.moe/db2n2u.png"> **Whispet to interact always**, because I didn't really pay attention to public chat unless one is talking right infront of me. **C+H freely and always encouraged**, even when I put dni in my name or when I'm with friends. *Do not copy my ponies* unless I give you the permission to. *Interact freely!* I want someone to talk to, though I won't accept sudden friend request if we even barely talk.
+src="https://files.catbox.moe/db2n2u.png"> Not online too often now because of school and limited access to my laptop.
+
+
+**Whispet to interact always**, because I didn't really pay attention to public chat unless one is talking right infront of me. **C+H freely and always encouraged**, even when I put dni in my name or when I'm with friends. *Do not copy my ponies* unless I give you the permission to. *Interact freely!* I want someone to talk to, though I won't accept sudden friend request if we even barely talk.
 
 
 Always around the Roblox and TMC area. Occasionally on the right side of Bakery (the GNB area) or near spawn (not recommended to approach me or interact if I'm near spawn. But C+H is still encouraged).
@@ -71,8 +73,8 @@ Usually is seen together with Danny ([@GHOSTBUSTERS-SFX](https://github.com/GHOS
 #
 
 
-<img align="center" width="200"
-src="https://files.catbox.moe/8xx1c9.png">
+<p align="center">
+<img src="https://files.catbox.moe/8xx1c9.png" width=300>
 
 
 <img src="https://files.catbox.moe/s23a7s.png" width=850>
