@@ -26,7 +26,7 @@
 
 
 
-# 
+#
 
 
 <img align="left" width="370"
@@ -55,7 +55,8 @@ _**DNI**_ : Basic dni criteria, -12 and 21+, problematic media, French NPC x oth
 #
 
 
-## **_PONYTOWN_**
+# **$${\color{#FFD235}PONYTOWN}$$**
+
 
 <img align="right" width="400" 
 src="https://files.catbox.moe/db2n2u.png"> Not online too often now because of school and limited access to my laptop.
