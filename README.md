@@ -19,7 +19,7 @@
 
 
 <p align="center">
-${\textsf{\color{#E3DEA4} ꒰ The real marshal Ney! ꒱ >ᴗ< }}$
+${\textsf{\color{#E3DEA4} ꒰ Marshal Ney has appeared! ꒱ >ᴗ< }}$
 
 
 <p align="center">
