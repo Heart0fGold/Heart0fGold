@@ -10,7 +10,7 @@
 
 
   
-<p align="center">
+<img align="center">
 <img src="https://files.catbox.moe/75b39v.png" width=850>
 
 <img src="https://files.catbox.moe/53uxo5.png" width=500>
@@ -18,9 +18,13 @@
 
 
 
+<p align="center">
+${\textsf{\color{#E3DEA4} ꒰ The real marshal Ney! ꒱ >ᴗ< }}$
 
 
-
+<p align="center">
+  <a href="https://github.com/pt-walk-of-fame">@pt-walk-of-fame</a>
+</p>
 
 
 
