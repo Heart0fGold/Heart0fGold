@@ -19,11 +19,11 @@
 
 
 <p align="center">
-${\textsf{\color{#E3DEA4} ꒰ Marshal Ney has appeared! ꒱ >ᴗ< }}$
+${\textsf{\color{#E3DEA4} ꒰ God's Sleepiest Soldier ꒱ }}$
 
 
 <p align="center">
-  <a href="https://github.com/pt-walk-of-fame">@pt-walk-of-fame</a>
+  <a href="https://github.com/pt-walk-of-fame">@pt-walk-of-fame</a> <a href="https://github.com/title-town">@title-town</a>
 </p>
 
 
