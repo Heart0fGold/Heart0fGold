@@ -21,7 +21,11 @@
 
 
 <p align="center">
-${\textsf{\color{#E3DEA4} ꒰ God's Sleepiest Soldier ꒱ }}$
+${\textsf{\color{#}  }}$
+$\color{#E3DEA4}{꒰\space God\space 's\space Sleepiest\space Soldier\space ꒱}$
+
+
+
 
 
 <p align="center">
