@@ -104,4 +104,4 @@ Usually is seen together with Danny ([@GHOSTBUSTERS-SFX](https://github.com/GHOS
 <img src="https://files.catbox.moe/gj1fes.png" width=850>
 
 
-${\textsf{\color{#FFCC30} All images and art are from Pinterest. }}$
+$\color{#FFCC30}{ All \space images \space and \space art \space are \space from \space Pinterest.}$
