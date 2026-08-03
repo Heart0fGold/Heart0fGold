@@ -21,7 +21,6 @@
 
 
 <p align="center">
-${\textsf{\color{#}  }}$
 $\color{#E3DEA4}{꒰\space God\space 's\space Sleepiest\space Soldier\space ꒱}$
 
 
@@ -41,14 +40,17 @@ $\color{#E3DEA4}{꒰\space God\space 's\space Sleepiest\space Soldier\space ꒱}
 
 <img align="left" width="370"
 src="https://files.catbox.moe/oz4v4v.png"> 
-${\textsf{\color{#F9E7C0}Ethan}}$ ⋮ ${\textsf{\color{#F7CA84}Karl}}$ ⋮ ${\textsf{\color{#EAB749}Aurum}}$ ⋮ ${\textsf{\color{#B47A21}Slingshot}}$ 
+$\color{#F9E7C0}{Ethan}$ ⋮
+$\color{#F7CA84}{Karl}$ ⋮
+$\color{#EAB749}{Aurum}$ ⋮
+$\color{#B47A21}{Slingshot}$
 
 
 
 ${\textsf{\color{#F2F5E2}Heﾉhim}}$ ⋮ ${\textsf{\color{#E3DEA4}Sheﾉher}}$
 
 
-${\textsf{\color{#F2F5E2}Seasian}}$ ⋮ ${\textsf{\color{#E3DEA4}IDN}}$ ﾉ ${\textsf{\color{#D4954D}ENG}}$ ﾉ ${\textsf{\color{#775533}(a little of) DEU}}$
+$\color{#F2F5E2}{Seasian}$ ⋮ ${\textsf{\color{#E3DEA4}IDN}}$ ﾉ ${\textsf{\color{#D4954D}ENG}}$ ﾉ ${\textsf{\color{#775533}(a little of) DEU}}$
 
 
 
