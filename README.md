@@ -87,7 +87,7 @@ Usually is seen together with Danny ([@GHOSTBUSTERS-SFX](https://github.com/GHOS
 
 
 <p align="center">
-<img src="https://files.catbox.moe/8xx1c9.png" width=250>
+<img src="https://files.catbox.moe/8xx1c9.png" width=200>
 
 
 <img src="https://files.catbox.moe/s23a7s.png" width=850>
