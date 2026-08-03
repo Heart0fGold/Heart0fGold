@@ -13,6 +13,8 @@
 <img align="center">
 <img src="https://files.catbox.moe/75b39v.png" width=850>
 
+
+<p align="center">
 <img src="https://files.catbox.moe/53uxo5.png" width=500>
 
 
