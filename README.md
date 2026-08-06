@@ -53,12 +53,24 @@ ${\textsf{\color{#F2F5E2}Heﾉhim}}$ ⋮ ${\textsf{\color{#E3DEA4}Sheﾉher}}$
 $\color{#F2F5E2}{Seasian}$ ⋮ ${\textsf{\color{#E3DEA4}IDN}}$ ﾉ ${\textsf{\color{#D4954D}ENG}}$ ﾉ ${\textsf{\color{#775533}(a little of) DEU}}$
 
 
+$\color{#F6E0B6}{Minor}$ ⋮ $\color{#A6BCC9}{Fictkins}$ <a href="https://bulbapedia.bulbagarden.net/wiki/Ethan_(game)">𝐈𓈒</a> <a href="https://gbp.fandom.com/wiki/1._Garde_zu_Fu%C3%9F_Officer">𝐈𝐈𓈒</a> <a href="https://phighting.fandom.com/wiki/Slingshot">𝐈𝐈𝐈𓈒</a> 
 
 
-I don't usually talk first, unless I'm really excited to chat with you, but I do not talk much in a group conversation. I'm insensitive and lack empathy. I get distant sometimes, don't worry though, I just get like that whenever I'm bored or want to be alone. I have little to no filter, so expect me to insult you jokingly at times. I don't usually use tonetags. I also have a weird humour (you know, like.. Nazi and stuff), but I DO NOT tolerate jokes like sa, suicide, etc. 
+
+<table>
+  <tr>
+ <td><a href="https://ethanhibiki.straw.page/">Strawpage</a>⠀ᛝ⠀<a href="https://forlornhope.atabook.org/">‎新Book</a>⠀⟢⠀<a href="https://guns.lol/prussian_officer">Guns.lol</a>⠀ᛝ⠀<a href="https://rentry.co/Aero-Blast">Directory</a>
+</table>
+ </tr>
 
 
-_**DNI**_ : Basic dni criteria, -12 and 21+, problematic media, French NPC x other nation that's not an ally to France (Bloodybarrel, Hottea, Teabiscuit, etc.) **are DNIUF**, unless you don't talk about it in front of me. Generally don't be an asshole.
+ 
+
+
+$\color{#8BBEB2}{DNI}$ : 
+
+
+Basic dni criteria, -12 and 21+, proshippers and darkshippers, Poképhile, problematic medias and fandoms, French NPC x other nation that's not an ally to France (Bloodybarrel, Hottea, Teabiscuit, etc.) **are DNIUF**, unless you don't talk about it in front of me. Generally don't be an asshole.
 
 
 
