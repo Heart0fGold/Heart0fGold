@@ -73,7 +73,7 @@ $\color{#8BBEB2}{DNI}$ :
 Basic dni criteria, -12 and 21+, proshippers and darkshippers, Poképhile, problematic medias and fandoms, French NPC x other nation that's not an ally to France (Bloodybarrel, Hottea, Teabiscuit, etc.) **are DNIUF**, unless you don't talk about it in front of me. Generally don't be an asshole.
 
 
-I block if I get uncomfortable, Idgaf.
+I only block if I get uncomfortable or if you piss me off, Idgaf.
 
 
 
