@@ -64,6 +64,8 @@ $\color{#F2F5E2}{Seasian}$ ⋮ ${\textsf{\color{#E3DEA4}IDN}}$ ﾉ ${\textsf{\co
 $\color{#F6E0B6}{Minor}$ ⋮ $\color{#A6BCC9}{Fictkins}$ <a href="https://bulbapedia.bulbagarden.net/wiki/Ethan_(game)">𝐈𓈒</a> <a href="https://gbp.fandom.com/wiki/1._Garde_zu_Fu%C3%9F_Officer">𝐈𝐈𓈒</a> <a href="https://phighting.fandom.com/wiki/Slingshot">𝐈𝐈𝐈𓈒</a> 
 
 
+$\color{#E3DEA4}{꒰\ Please\ sign\ atabook\ or\ strawpage,\ if\ you\ want!\ I'd\ be\ honoured.\ ꒱}$
+
 
 <table>
   <tr>
