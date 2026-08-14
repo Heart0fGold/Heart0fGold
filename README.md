@@ -8,8 +8,6 @@
  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Special+Elite&size=30&letterSpacing=double+space&duration=2000&pause=500&color=FFCC33&center=true&vCenter=true&width=650&height=52&lines="I'm+lonesome+since+I+crossed+the+hill;and+o'er+the+moor+and+valley.;Such+grievous+thoughts+my+heart+to+fill;since+parting+with+my+Sally.;I+seek+no+more+the+fine+or+gay%2C;for+each+does+but+remind+me.;How+swift+the+hours+did+pass+away;with+the+Girl+I+Left+Behind+Me.")](https://git.io/typing-svg)
 </div>
 
-
-  
 <img align="center">
 <img src="https://files.catbox.moe/75b39v.png" width=850>
 
