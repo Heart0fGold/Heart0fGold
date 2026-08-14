@@ -43,7 +43,7 @@ $\color{#ED9040}{✧˖°.︵\ Previously\ known\ as\ GitHub\ user\ @D4rktheJohto
 #
 
 
-<img align="left" width="370"
+<img align="left" width="400"
 src="https://files.catbox.moe/oz4v4v.png"> 
 $\color{#F9E7C0}{Ethan}$ ⋮
 $\color{#F7CA84}{Karl}$ ⋮
@@ -80,7 +80,7 @@ $\color{#8BBEB2}{DNI}$ :
 Basic dni criteria, -12 and 21+, proshippers and darkshippers, Poképhile, problematic medias and fandoms, French NPC x other nation that's not an ally to France (Bloodybarrel, Hottea, Teabiscuit, etc.) **are DNIUF**, unless you don't talk about it in front of me. Generally don't be an asshole.
 
 
-I only block if I get uncomfortable or if you piss me off, Idgaf.
+I only block if I get uncomfortable or if you piss me off, Idgaf. Doubles, however, are free to interact!
 
 
 
@@ -92,7 +92,7 @@ I only block if I get uncomfortable or if you piss me off, Idgaf.
 # **$${\color{#FFD235}PONYTOWN}$$**
 
 
-<img align="right" width="400" 
+<img align="right" width="420" 
 src="https://files.catbox.moe/db2n2u.png"> Not online too often now because of school and limited access to my laptop.
 
 
