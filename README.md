@@ -93,10 +93,10 @@ I only block if I get uncomfortable or if you piss me off, Idgaf.
 src="https://files.catbox.moe/db2n2u.png"> Not online too often now because of school and limited access to my laptop.
 
 
-**Whispet to interact always**, because I didn't really pay attention to public chat unless one is talking right infront of me. **C+H freely and always encouraged**, even when I put dni in my name or when I'm with friends. *Do not copy my ponies* unless I give you the permission to. *Interact freely!* I want someone to talk to, though I won't accept sudden friend request if we even barely talk. Doubles of my kin are free to interact!
+**Whispet to interact always**, because I didn't really pay attention to public chat unless one is talking right infront of me. **C+H freely and always encouraged**, even when I put dni in my name or when I'm with friends. **Sleeping means slower response**, as I'm afk or playing a game. *Do not copy my ponies* unless I give you the permission to. *Interact freely!* I want someone to talk to, though I won't accept sudden friend request if we even barely talk. Doubles of my kin can still interact!
 
 
-Always around the Roblox and TMC area. Occasionally on the right side of Bakery (the GNB area) or near spawn (not recommended to approach me or interact if I'm near spawn. But C+H is still encouraged).
+Always around the Roblox and TMC area. Occasionally on the right side of Bakery (the GNB area) or near spawn (I usually want to be alone if I'm near spawn, although C+H is still encouraged and you can strike a convo with me via whisper!).
 
 
 Usually is seen together with Danny ([@Ham-milton](https://github.com/Ham-milton)).
