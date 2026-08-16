@@ -43,7 +43,7 @@ $\color{#ED9040}{✧˖°.︵\ Previously\ known\ as\ GitHub\ user\ @D4rktheJohto
 #
 
 
-<img align="left" width="400"
+<img align="left" width="390"
 src="https://files.catbox.moe/oz4v4v.png"> 
 $\color{#F9E7C0}{Ethan}$ ⋮
 $\color{#F7CA84}{Karl}$ ⋮
@@ -74,13 +74,10 @@ $\color{#E3DEA4}{꒰\ Please\ sign\ atabook\ or\ strawpage,\ if\ you\ want!\ I'd
  
 
 
-$\color{#8BBEB2}{DNI}$ : 
+$\color{#8BBEB2}{DNI}$ : Basic dni criteria, -12 and 21+, proshippers, darkshippers, Poképhile, problematic medias and fandoms, French NPC x other nation that's not an ally to France (Bloodybarrel, Hottea, Teabiscuit, etc.) **are DNIUF**, unless you don't talk about it in front of me. Generally don't be an asshole.
 
 
-Basic dni criteria, -12 and 21+, proshippers and darkshippers, Poképhile, problematic medias and fandoms, French NPC x other nation that's not an ally to France (Bloodybarrel, Hottea, Teabiscuit, etc.) **are DNIUF**, unless you don't talk about it in front of me. Generally don't be an asshole.
-
-
-I only block if I get uncomfortable or if you piss me off, Idgaf. Doubles, however, are free to interact!
+I only block if I get uncomfortable or if you piss me off, Idgaf.
 
 
 
@@ -92,17 +89,17 @@ I only block if I get uncomfortable or if you piss me off, Idgaf. Doubles, howev
 # **$${\color{#FFD235}PONYTOWN}$$**
 
 
-<img align="right" width="420" 
+<img align="right" width="440" 
 src="https://files.catbox.moe/db2n2u.png"> Not online too often now because of school and limited access to my laptop.
 
 
-**Whispet to interact always**, because I didn't really pay attention to public chat unless one is talking right infront of me. **C+H freely and always encouraged**, even when I put dni in my name or when I'm with friends. *Do not copy my ponies* unless I give you the permission to. *Interact freely!* I want someone to talk to, though I won't accept sudden friend request if we even barely talk.
+**Whispet to interact always**, because I didn't really pay attention to public chat unless one is talking right infront of me. **C+H freely and always encouraged**, even when I put dni in my name or when I'm with friends. *Do not copy my ponies* unless I give you the permission to. *Interact freely!* I want someone to talk to, though I won't accept sudden friend request if we even barely talk. Doubles of my kin are free to interact!
 
 
 Always around the Roblox and TMC area. Occasionally on the right side of Bakery (the GNB area) or near spawn (not recommended to approach me or interact if I'm near spawn. But C+H is still encouraged).
 
 
-Usually is seen together with Danny ([@Ham-milton](https://github.com/Ham-milton)) or Ferry ([@SomeoneForReal](https://github.com/SomeoneForReal)).
+Usually is seen together with Danny ([@Ham-milton](https://github.com/Ham-milton)).
 
 
 #
