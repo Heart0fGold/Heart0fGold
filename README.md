@@ -44,7 +44,7 @@ $\color{#ED9040}{✧˖°.︵\ Previously\ known\ as\ GitHub\ user\ @D4rktheJohto
 
 
 <img align="center">
-<img src ="https://files.catbox.moe/iu5zdp.png">
+<img src ="https://files.catbox.moe/l21vui.png">
 
 
 <img align="left" width="390"
@@ -106,7 +106,7 @@ Usually is seen together with Danny ([@Ham-milton](https://github.com/Ham-milton
 
 
 <img align="center">
-<img src ="https://files.catbox.moe/iu5zdp.png">
+<img src ="https://files.catbox.moe/l21vui.png">
 
 
 <p align="center">
