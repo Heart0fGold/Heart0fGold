@@ -20,6 +20,9 @@
 </div>
 
 
+<img align="center">
+<img src ="https://files.catbox.moe/l21vui.png">
+
 
 
 <p align="center">
@@ -43,8 +46,10 @@ $\color{#ED9040}{✧˖°.︵\ Previously\ known\ as\ GitHub\ user\ @D4rktheJohto
 </p>
 
 
-<img align="center">
-<img src ="https://files.catbox.moe/l21vui.png">
+
+
+<details closed>
+  <summary>$\color{#EFBB55}{꒰\ About\ Me\ ꒱}$</summary>
 
 
 <img align="left" width="390"
@@ -84,12 +89,13 @@ $\color{#8BBEB2}{DNI}$ : Basic dni criteria, -12 and 21+, proshippers, darkshipp
 I only block if I get uncomfortable or if you piss me off, Idgaf.
 
 
+</details>
 
 
 
-#
 
-**$\color{#f6c049}\large{\textsf{PONYTOWN}}$**
+<details closed>
+  <summary>$\color{#EFBB55}{꒰\ Ponytown\ ꒱}$</summary>
 
 
 <img align="right" width="480" 
@@ -103,6 +109,9 @@ Always around the Roblox and TMC area. Occasionally on the right side of Bakery 
 
 
 Usually is seen together with Danny ([@Ham-milton](https://github.com/Ham-milton)).
+
+
+</details>
 
 
 <img align="center">
