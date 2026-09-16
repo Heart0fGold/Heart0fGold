@@ -1,5 +1,3 @@
-<div align="center">
-
 [![Hits](https://hits.sh/github.com/Heart0fGold.svg?label=Maréchaux+d'Empire.&color=F9E7C0&labelColor=F7CA84)](https://hits.sh/github.com/Heart0fGold/)
 
 
@@ -42,7 +40,8 @@ $\color{#E3DEA4}{꒰\space God\space 's\space Sleepiest\space Soldier\space ꒱}
 
 </p>
 <p align="center">
-$\color{#ED9040}{✧˖°.︵\ Previously\ known\ as\ GitHub\ user\ @D4rktheJohtonian\ ︵.°˖✧}$
+$\color{#ED9040}{꒰\ Previously\ known\ as\ GitHub\ user\ @D4rktheJohtonian\ ꒱}$
+   
 </p>
 
 
