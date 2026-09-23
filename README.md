@@ -50,7 +50,7 @@ $\color{#ED9040}{꒰\ Previously\ known\ as\ GitHub\ user\ @D4rktheJohtonian\ �
 
 
 <details closed>
-  <summary>$\color{#EFBB55}{꒰\ About\ Me\ ꒱}$</summary>
+  <summary>$\color{#EFBB55}{･\ ⟢\ ⋮\ About\ Me\ ◞ ☆}$</summary>
 
 
 <img align="left" width="390"
@@ -96,7 +96,7 @@ I only block if I get uncomfortable or if you piss me off, Idgaf.
 
 
 <details closed>
-  <summary>$\color{#EFBB55}{꒰\ Ponytown\ ꒱}$</summary>
+  <summary>$\color{#EFBB55}{･\ ⟢\ ⋮\ Ponytown\ ◞ ☆}$</summary>
 
 
 <img align="right" width="480" 
