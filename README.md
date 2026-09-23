@@ -47,6 +47,7 @@ $\color{#ED9040}{ê’°\ Previously\ known\ as\ GitHub\ user\ @D4rktheJohtonian\ ê’
 </p>
 
 
+#
 
 
 <details closed>
@@ -115,15 +116,14 @@ Usually is seen together with Danny ([@Ham-milton](https://github.com/Ham-milton
 </details>
 
 
-<img align="center">
-<img src ="https://files.catbox.moe/l21vui.png">
-
+#
 
 <p align="center">
 <img src="https://files.catbox.moe/8xx1c9.png" width=200>
 
 
-<img src="https://files.catbox.moe/s23a7s.png" width=850>
+<img align="center">
+<img src ="https://files.catbox.moe/l21vui.png">
 
 
 
@@ -131,6 +131,11 @@ Usually is seen together with Danny ([@Ham-milton](https://github.com/Ham-milton
    
  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Special+Elite&size=30&letterSpacing=double+space&duration=2000&pause=500&color=EFBB55&center=true&vCenter=true&width=650&height=52&lines="Oh%2C+ne'er+shall+I+forget+the+night%2C;the+stars+was+bright+above+me;and+gently+lent+their+silverly+lights;when+she+first+vowed+to+love+me.;But+now+I'm+bound+to+Brighton+camp,;kind+heaven,+then,+pray+guide+me.;And+send+me+safely+back+again,;to+The+Girl+I+Left+Behind+Me.")](https://git.io/typing-svg)
 </div>
+
+
+
+<img src="https://files.catbox.moe/s23a7s.png" width=850>
+
 
 
 <p align="center">
