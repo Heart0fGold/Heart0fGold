@@ -121,7 +121,7 @@ Usually is seen together with Danny ([@Ham-milton](https://github.com/Ham-milton
 
 
 <p align="center">
-  <a href="https://forlornhope.atabook.org/"><img src="https://files.catbox.moe/m7ruez.png" width="140" /></a>
+  <a href="https://forlornhope.atabook.org/"><img src="https://files.catbox.moe/m7ruez.png" width="200" /></a> <a href="https://ethanhibiki.straw.page/"><img src="https://files.catbox.moe/aus0wg.png" width="200" /></a> <a href="https://guns.lol/prussian_officer"><img src="https://files.catbox.moe/e68ncc.png" width="200" /></a> <a href="https://rentry.co/Aero-Blast"><img src="https://files.catbox.moe/08h5vd.png" width="200" /></a>
  </p>
 
 
