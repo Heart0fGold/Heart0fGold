@@ -116,6 +116,18 @@ Usually is seen together with Danny ([@Ham-milton](https://github.com/Ham-milton
 </details>
 
 
+<details closed>
+  <summary>$\color{#EFBB55}{･\ ⟢\ ⋮\ Links ◞ ☆}$</summary>
+
+
+<p align="center">
+  <a href="https://forlornhope.atabook.org/"><img src="https://files.catbox.moe/m7ruez.png" width="140" /></a>
+ </p>
+
+
+</details>
+
+
 #
 
 <p align="center">
