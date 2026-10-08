@@ -73,15 +73,6 @@ $\color{#F6E0B6}{Minor}$ ⋮ $\color{#A6BCC9}{Fictkins}$ <a href="https://bulbap
 
 
 $\color{#E3DEA4}{꒰\ Please\ sign\ atabook\ or\ strawpage,\ if\ you\ want!\ I'd\ be\ honoured.\ ꒱}$
-
-
-<table>
-  <tr>
- <td><a href="https://ethanhibiki.straw.page/">Strawpage</a>⠀ᛝ⠀<a href="https://forlornhope.atabook.org/">‎新Book</a>⠀⟢⠀<a href="https://guns.lol/prussian_officer">Guns.lol</a>⠀ᛝ⠀<a href="https://rentry.co/Aero-Blast">Directory</a>
-</table>
- </tr>
-
-
  
 
 
@@ -121,7 +112,7 @@ Usually is seen together with Danny ([@Ham-milton](https://github.com/Ham-milton
 
 
 <p align="center">
-  <a href="https://forlornhope.atabook.org/"><img src="https://files.catbox.moe/m7ruez.png" width="200" /></a> <a href="https://ethanhibiki.straw.page/"><img src="https://files.catbox.moe/aus0wg.png" width="200" /></a> <a href="https://guns.lol/prussian_officer"><img src="https://files.catbox.moe/e68ncc.png" width="200" /></a> <a href="https://rentry.co/Aero-Blast"><img src="https://files.catbox.moe/08h5vd.png" width="200" /></a>
+  <a href="https://forlornhope.atabook.org/"><img src="https://files.catbox.moe/m7ruez.png" width="220" /></a> <a href="https://ethanhibiki.straw.page/"><img src="https://files.catbox.moe/aus0wg.png" width="220" /></a> <a href="https://guns.lol/prussian_officer"><img src="https://files.catbox.moe/e68ncc.png" width="220" /></a> <a href="https://rentry.co/Aero-Blast"><img src="https://files.catbox.moe/08h5vd.png" width="220" /></a>
  </p>
 
 
