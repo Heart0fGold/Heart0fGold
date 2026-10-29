@@ -33,10 +33,10 @@ $\color{#E3DEA4}{꒰\space God\space 's\space Sleepiest\space Soldier\space ꒱}
 
 
 <p align="center">
-  <a href="https://github.com/pt-walk-of-fame">@pt-walk-of-fame</a> <a href="https://github.com/title-town">@title-town</a>  <a href="https://github.com/pt-medals">@pt-medals</a> <a href="https://github.com/ponytown-nominations">@ponytown-nominations</a> <a
+  <a href="https://github.com/pt-walk-of-fame">@pt-walk-of-fame</a> <a href="https://github.com/title-town">@title-town</a>  <a href="https://github.com/pt-medals">@pt-medals</a> <a href="https://github.com/ponytown-nominations">@ponytown-nominations</a> <a href="https://github.com/ponychievements">@ponychievements</a>
                                                                                                                                                                                                                                                                   </p>
 <p align="center">
-<a href="https://github.com/ponychievements">@ponychievements</a> <a href="https://github.com/pt-fashion">@pt-fashion</a> <a href="https://github.com/cosplaytown">@cosplaytown</a> <a href="https://github.com/pt-nominations">@pt-nominations</a> <a href="https://github.com/folktown">@folktown</a> <a href="https://github.com/Ponytowns-rewards">@Ponytowns-rewards</a>
+<a href="https://github.com/pt-fashion">@pt-fashion</a> <a href="https://github.com/cosplaytown">@cosplaytown</a> <a href="https://github.com/pt-nominations">@pt-nominations</a> <a href="https://github.com/folktown">@folktown</a> <a href="https://github.com/Ponytowns-rewards">@Ponytowns-rewards</a> <a href="https://github.com/kin-town">@kin-town</a> <a href="https://github.com/pt-heavyfictkin">@pt-heavyfictkin</a> <a href="https://github.com/music-town">@Music-town</a>
 </p>
 
 
